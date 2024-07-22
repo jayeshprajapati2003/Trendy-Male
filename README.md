@@ -1,2 +1,2 @@
-# Trendy-Male
+#Trendy
 New Trending Mens Cloths 
